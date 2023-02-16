@@ -1,0 +1,1 @@
+# ajio_shopping.github.io
